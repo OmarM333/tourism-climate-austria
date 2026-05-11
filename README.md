@@ -1,1 +1,0 @@
-# tourism-climate-austria
